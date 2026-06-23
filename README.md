@@ -33,4 +33,4 @@ LinkedIn:
 https://www.linkedin.com/in/mrs-snehal-a-hinge-399700117/
 
 Email:
-your@email.com
+gaikwadsnehalkisan024@gmail.com
